@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://64.media.tumblr.com/08748ee2ca512edc84f2e9adeb0ed77b/dc3fa06d170e898e-87/s640x960/6f8df91945230853084e1a9cc52771634792e592.pnj"> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/e4ede3b6d7ab3eb714ca0785b80ca2a4/3d96f1415aafa86b-38/s1280x1920/d041ecdfa6710893f309d528d5a442d5b45c88f0.png"> </p>
   
 ### <p align="center">  ☾ ⠀⠀  *ask 4 name*  ⠀. </p>
 <p align="center"> ⠀ 6teen ﹒ 🇩🇪 ⠀⟡     </p>
