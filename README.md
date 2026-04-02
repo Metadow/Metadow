@@ -1,5 +1,10 @@
 <div align="center">
 
+<img src="https://media.discordapp.net/attachments/1399140767447912519/1489363519789989919/image.png?ex=69d0255e&is=69ced3de&hm=bb4c4082ed97d5b9858deb65fd11143fc497e6d8b45ed3db718f121c75cfa37a&=&format=webp&quality=lossless">
+
+chiken not allowed to speak to (former) friend because his alpha boyfriend said i cant !
+
+
 ![](https://komarev.com/ghpvc/?username=metadow&color=9e0000&abbreviated=true&style=flat-square&label=+Blood-red,+Symptomatic,+vomit+on+my+bed+!)
 
 <p align="center"> <img src="https://64.media.tumblr.com/e7f10c1e724c24ef5644690ca61797b2/73b9dda430c7e2ea-7b/s1280x1920/0b9f8f3b935ff7b34364cf81a7426821f1410b12.png" width="540" height="400" alt="metadow forevah!!!">
