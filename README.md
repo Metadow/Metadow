@@ -5,7 +5,7 @@
 <p align="center"> <img src="https://64.media.tumblr.com/e7f10c1e724c24ef5644690ca61797b2/73b9dda430c7e2ea-7b/s1280x1920/0b9f8f3b935ff7b34364cf81a7426821f1410b12.png" width="540" height="400" alt="metadow forevah!!!">
   
 ### <p align="center"> *◟ Pawn﹐ Xamp﹐ Curtis◝* </p>
-<p align="center"> ⠀ 7teen 　He/Him　 unlabeled queer⠀</p>
+<p align="center"> ⠀ 8teen 　He/Him　 unlabeled queer⠀</p>
 <p align="center"> strawpage byi　　sign ata </p>
 <p align="center"> <a href="https://metadow.atabook.org">atabook</a>　　﹙﹚　　<a href="https://bademeistertv.straw.page">strawpage</a> <br> </p>
 
