@@ -1,6 +1,8 @@
 <div align="center">
-
+  
 ![](https://komarev.com/ghpvc/?username=metadow&color=9e0000&abbreviated=true&style=flat-square&label=+Blood-red,+Symptomatic,+vomit+on+my+bed+!)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&weight=600&size=13&letterSpacing=0.2rem&duration=2500&pause=1000&color=9E0000&center=true&multiline=true&width=435&lines=If+the+world+chooses+to+become+my+enemy%2C;+I+will+fight+like+I+always+have!)](https://git.io/typing-svg)
 
 <p align="center"> <img src="https://64.media.tumblr.com/e7f10c1e724c24ef5644690ca61797b2/73b9dda430c7e2ea-7b/s1280x1920/0b9f8f3b935ff7b34364cf81a7426821f1410b12.png" width="540" height="400" alt="metadow forevah!!!">
   
