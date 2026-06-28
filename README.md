@@ -16,7 +16,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D4D4D4&center=true&multiline=true&repeat=false&width=735&height=45&lines=8TEEN+%E3%80%80HE%2FHIM%E3%80%80+UNLABELLED+QUEER%E2%A0%80)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D4D4D4&center=true&multiline=true&repeat=false&width=735&height=45&lines=STRAWPAGE+BYI%E3%80%80%E3%80%80SIGN+ATA)](https://git.io/typing-svg)
 
-[<img src="https://pbs.twimg.com/media/GivlH7TWcAAKJ71.png" width="50">](https://bademeistertv.straw.page) [<img src="https://encrypted-tbn2.gstatic.com/faviconV2?url=https://atabook.org&client=VFE&size=64&type=FAVICON&fallback_opts=TYPE,SIZE,URL&nfrp=2" width="50">](https://metadow.atabook.org)
+[<img src="https://pbs.twimg.com/media/GivlH7TWcAAKJ71.png" width="50">](https://bademeistertv.straw.page) 　　　　　　　　　　　 [<img src="https://encrypted-tbn2.gstatic.com/faviconV2?url=https://atabook.org&client=VFE&size=64&type=FAVICON&fallback_opts=TYPE,SIZE,URL&nfrp=2" width="50">](https://metadow.atabook.org)
 
 
 [<img width="310" src="https://lastfm.dedomil.workers.dev/metadow?dark">](https://last.fm/user/metadow)
