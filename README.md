@@ -20,3 +20,9 @@
 
 
 [<img width="310" src="https://lastfm.dedomil.workers.dev/metadow?dark">](https://last.fm/user/metadow)
+
+***
+
+regarding　latest　accusations,　i　wish　to　share　this.　it's　directed　at　people　who　think　i　**fake**　being　mentally　ill.
+
+[READ　AT　OWN　RISK.](https://rentry.co/ifakeit)
