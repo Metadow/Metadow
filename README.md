@@ -19,7 +19,7 @@
 [<img src="https://pbs.twimg.com/media/GivlH7TWcAAKJ71.png" width="50">](https://bademeistertv.straw.page) 　　　　　　　　　　　 [<img src="https://encrypted-tbn2.gstatic.com/faviconV2?url=https://atabook.org&client=VFE&size=64&type=FAVICON&fallback_opts=TYPE,SIZE,URL&nfrp=2" width="50">](https://metadow.atabook.org)
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&background_color=121212&interchange=true&bar_color=D40000&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&cover_image=true&theme=natemoo-re&background_color=121212&interchange=true&bar_color=D40000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=hvvqvjs480cxuz08mw5u083li&redirect=true)
 
 ***
 
