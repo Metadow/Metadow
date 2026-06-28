@@ -1,12 +1,14 @@
 <div align="center">
+
+<code style="red : name_color">test test test</code>
   
 ![](https://komarev.com/ghpvc/?username=metadow&color=9e0000&abbreviated=true&style=flat-square&label=+Blood-red,+Symptomatic,+vomit+on+my+bed+!)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&weight=600&size=13&letterSpacing=0.2rem&duration=2500&pause=1000&color=9E0000&center=true&multiline=true&width=435&lines=If+the+world+chooses+to+become+my+enemy%2C;+I+will+fight+like+I+always+have!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=21&duration=2800&color=D40000&center=true&multiline=true&repeat=false&width=435&height=60&lines=My+obsession+is+one+you+can+trust;Blind+idol+worship%2C+at+first+blush)](https://git.io/typing-svg)
 
-<p align="center"> <img src="https://64.media.tumblr.com/e7f10c1e724c24ef5644690ca61797b2/73b9dda430c7e2ea-7b/s1280x1920/0b9f8f3b935ff7b34364cf81a7426821f1410b12.png" width="540" height="400" alt="metadow forevah!!!">
+<p align="center"> <img src="https://64.media.tumblr.com/cb358357dfc2e283cb2eda117a34a67c/0ddbcbae0389dea7-8e/s2048x3072/bd5f39f49326bd97a01f22b87e2582fc9d18985a.pnj" width="530" height="300" alt="art by: checkyshka on Tumblr">
   
-### <p align="center"> *◟ Pawn﹐ Xamp﹐ Curtis◝* </p>
+### <p align="center"> *◟ SHADOW◝* </p>
 <p align="center"> ⠀ 8teen 　He/Him　 unlabeled queer⠀</p>
 <p align="center"> strawpage byi　　sign ata </p>
 <p align="center"> <a href="https://metadow.atabook.org">atabook</a>　　﹙﹚　　<a href="https://bademeistertv.straw.page">strawpage</a> <br> </p>
