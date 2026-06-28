@@ -1,6 +1,4 @@
 <div align="center">
-
-<code style="red : name_color">test test test</code>
   
 ![](https://komarev.com/ghpvc/?username=metadow&color=9e0000&abbreviated=true&style=flat-square&label=+Blood-red,+Symptomatic,+vomit+on+my+bed+!)
 
