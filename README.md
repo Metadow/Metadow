@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=metadow&color=9e0000&style=plastic&label=+I+Heart+you,+I+Heart+you+not)
+![](https://komarev.com/ghpvc/?username=metadow&color=9e0000&style=flat&label=+I+Heart+you,+I+Heart+you+not)
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=21&duration=2800&color=D40000&center=true&multiline=true&repeat=false&width=435&height=60&lines=My+obsession+is+one+you+can+trust;Blind+idol+worship%2C+at+first+blush)
 
