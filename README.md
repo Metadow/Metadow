@@ -22,8 +22,3 @@
  <img src= "https://64.media.tumblr.com/6d0138584ba7f315487b2c068552c60e/3911cafc8a6a674c-a0/s100x200/0a352697d62dafe4272948962a9aa5bafa087837.gifv"> 
  <img src= "https://64.media.tumblr.com/cc46789a6d8ecbce30b58fbd696b9d5e/3911cafc8a6a674c-9a/s100x200/c4590f6013127fa778c743dd16cb15d133cb3964.gifv"> </p>
  
-***
-
-regarding　latest　accusations,　i　wish　to　share　this.　it's　directed　at　people　who　think　i　**fake**　being　mentally　ill.
-
-[READ　AT　OWN　RISK.](https://rentry.co/ifakeit)
