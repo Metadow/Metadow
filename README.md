@@ -14,9 +14,9 @@
 
 
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=49&duration=1&color=D4D4D4&center=true&multiline=true&repeat=false&width=435&height=60&lines=SHADOW)
-![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D4D4D4&center=true&multiline=true&repeat=false&width=735&height=35&lines=8TEEN+%E3%80%80HE%2FHIM%E3%80%80+UNLABELLED+QUEER%E2%A0%80)
+![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D4D4D4&center=true&multiline=true&repeat=false&width=735&height=45&lines=8TEEN+%E3%80%80HE%2FHIM%E3%80%80+UNLABELLED+QUEER%E2%A0%80)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D40000&center=true&multiline=true&repeat=false&width=235&height=35&lines=SIGN+ATA)](https://metadow.atabook.org) [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D40000&center=true&multiline=true&repeat=false&width=235&height=35&lines=STRAWPAGE+BYI)](https://bademeistertv.straw.page)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D40000&center=true&multiline=true&repeat=false&width=235&height=55&lines=SIGN+ATA)](https://metadow.atabook.org) [![Typing SVG](https://readme-typing-svg.demolab.com?font=DotGothic16&size=30&duration=1&color=D40000&center=true&multiline=true&repeat=false&width=235&height=55&lines=STRAWPAGE+BYI)](https://bademeistertv.straw.page)
 
 <p align="center"> <img src= "https://64.media.tumblr.com/8ae7e7d2ccfdb6387f745b78f679bfde/3911cafc8a6a674c-2f/s100x200/39c52ed5f07ed805a802c3179254fd7354e211d0.gifv"> 
  <img src= "https://64.media.tumblr.com/6d0138584ba7f315487b2c068552c60e/3911cafc8a6a674c-a0/s100x200/0a352697d62dafe4272948962a9aa5bafa087837.gifv"> 
